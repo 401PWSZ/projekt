@@ -1,2 +1,2 @@
-# projekt
+# Sebastian Zborowski
 Ściągawka
